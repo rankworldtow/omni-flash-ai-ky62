@@ -1,4 +1,4 @@
-# 
+# Élite Omni Flash préréglages. Avec recherche sémantique et autonomie des agents — optimisé pour des performances et une efficacité maximales.
 
 
 
